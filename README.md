@@ -1,0 +1,5 @@
+- 👋 Hello my name is Jean, Friends call me @thornthunder (Looong story, and we sometimes choose names before we understand the implications, but... had it since the previous millennium)
+- 👀 I am very interested in creation.... be it trivial as a perfect score, complex as an EV calculation, or rewarding as a good Lager.
+- 🌱 I am currently learning not to take things too seriously, and as always, be better.... every day. 
+- 💞️ I am looking to collaborate on anything interesting... and financially sane... 
+- 📫 Reachable via email jean@thirions.com ... or usually anywhere you see thornthunder.
